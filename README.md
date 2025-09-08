@@ -1,1 +1,0 @@
-# Manufacturing-Prototype-Tech-Day
